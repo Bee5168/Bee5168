@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bee5168 fotm laos
 - 👀 I’m interested in Gamer
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning Stream game
 - 💞️ I’m looking to collaborate I want to have a lover.
 - 📫 How to reach me W.a:+8562057057209
 - bee5168ok@gmail.com
